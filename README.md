@@ -1,6 +1,6 @@
 # Lyric's Yuri Manga and Anime List
 
-The lesbian list has **13** entries!
+The lesbian list has **14** entries!
 
 | Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
