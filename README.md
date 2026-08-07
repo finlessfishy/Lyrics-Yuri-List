@@ -12,6 +12,7 @@ The lesbian list has **11** entries!
 | **I'm In Love With The Villainess**          | **9/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
 | **Love Bullet**                              | **9/10**   | Action        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
+| **Puella Magi Madoka Magica**                | **10/10**  | Doomed        | **12** chapters, 12 episodes, 3 movies | Manga & Anime |
 | **Sakura Trick**                             | **6/10**   | Comedy        | **76** chapters, **12** episodes | Manga & Anime |
 | **Sheep Princess In Wolf’s Clothing**        | **7.5/10** | Fantasy       | **27** chapters | Manga |
 | **The Summer You Were There**                | **10/10**  | Doomed        | **32** chapters | Manga |
