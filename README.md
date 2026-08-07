@@ -10,6 +10,6 @@
 
 **Cheerful Amnesia:** **8.5/10** (comedy) (66 chapters)
 
-**Sakura Trick**: **5/10** (comedy) (76 chapters)
+**Sakura Trick**: **6/10** (comedy) (76 chapters)
 
-**New Game!**: **6/10** (slice of life) (151 chapters)
+**New Game!**: **5.5/10** (slice of life) (151 chapters)
