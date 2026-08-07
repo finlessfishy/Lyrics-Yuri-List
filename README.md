@@ -1,5 +1,7 @@
 # Lyric's Yuri Manga and Anime List
 
+The lesbian list has **11** entries!
+
 | Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
 | **7-Kakan Gentei Kanojo**                    | **9/10**   | Comedy        | **17** chapters | Manga |
