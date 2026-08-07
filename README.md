@@ -1,6 +1,6 @@
 # Lyric's Yuri Manga and Anime List
 
-The lesbian list has **12** entries!
+The lesbian list has **13** entries!
 
 | Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
@@ -9,6 +9,7 @@ The lesbian list has **12** entries!
 | **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy        | **66** chapters | Manga |
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
+| **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
 | **Love Bullet**                              | **9/10**   | Action        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
