@@ -1,6 +1,6 @@
 # Lyric's Yuri Manga and Anime List
 
-| Title | Rating | Genre | Length | Format |7-Kakan Gentei Kanojo
+| Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
 | **7-Kakan Gentei Kanojo**                    | **9/10**   | Comedy        | **17** chapters | Manga |
 | **Adachi and Shimamura**                     | **9/10**   | Slice of life | **60** chapters, **12** episodes | Manga & Anime |
