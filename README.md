@@ -10,4 +10,4 @@
 
 **Cheerful Amnesia:** **8.5/10** (comedy) (66 chapters)
 
-**Sakura Trick**: **6.5/10** (comedy) (76 chapters)
+**Sakura Trick**: **5/10** (comedy) (76 chapters)
