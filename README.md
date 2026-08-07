@@ -8,10 +8,10 @@ The lesbian list has **13** entries!
 | **Adachi and Shimamura**                     | **9/10**   | Slice of life | **60** chapters, **12** episodes | Manga & Anime |
 | **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy, Slice of life        | **66** chapters | Manga |
-| **Flip Flappers**                            | **9.5/10** | Comedy, Surrealism        | **13** episodes | Anime only |
+| **Flip Flappers**                            | **8.5/10** | Comedy, Surrealism        | **13** episodes | Anime only |
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
-| **I'm In Love With The Villainess**          | **9/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
+| **I'm In Love With The Villainess**          | **9.5/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
