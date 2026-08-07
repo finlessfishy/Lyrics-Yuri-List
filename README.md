@@ -6,6 +6,7 @@
 | **Adachi and Shimamura**                     | **9/10**   | Slice of life | **60** chapters, **12** episodes | Manga & Anime |
 | **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy        | **66** chapters | Manga |
+| **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9/10**   | Fantasy       | **45** chapters, 12 episodes | Manga, Anime |
 | **Love Bullet**                              | **9/10**   | Action        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** movie | Manga & Anime |
