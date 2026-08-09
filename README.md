@@ -9,6 +9,7 @@ The lesbian list has **14** entries!
 | **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy, Slice of life        | **66** chapters | Manga |
 | **Flip Flappers**                            | **9/10** | Comedy, Surrealism        | **13** episodes | Anime only |
+| **The Demon Girl Next Door**                 | **9/10** | Comedy, Fantasy      | **24** episodes, **82** chapters | Anime & Manga |
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9.5/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
