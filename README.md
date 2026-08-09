@@ -11,7 +11,7 @@ The lesbian list has **16** entries!
 | **Adachi and Shimamura**                     | **9/10**   | Slice of life | **60** chapters, **12** episodes | Manga & Anime |
 | **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy, Slice of life        | **66** chapters | Manga |
-| **Citrus**                                   | **9.5/10** | Slice of life, Angst      | **12** episodes, **71** chapters | Anime & Manga |
+| **Citrus**                                   | **8/10** | Slice of life, Angst      | **12** episodes, **71** chapters | Anime & Manga |
 | **Flip Flappers**                            | **9/10** | Comedy, Surrealism        | **13** episodes | Anime only |
 | **The Demon Girl Next Door**                 | **9/10** | Comedy, Fantasy      | **24** episodes, **82** chapters | Anime & Manga |
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
