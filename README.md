@@ -23,26 +23,3 @@ The lesbian list has **16** entries!
 | **Sakura Trick**                             | **6/10**   | Comedy, Fluff        | **76** chapters, **12** episodes | Manga & Anime |
 | **Sheep Princess In Wolf’s Clothing**        | **7.5/10** | Fantasy, Comedy       | **27** chapters | Manga |
 | **The Summer You Were There**                | **10/10**  | Doomed, Angst        | **32** chapters | Manga |
-
----
-
-## Lyric's top picks:
-
-### Puella Magi Madoka Magica
-Dark fantasy, psychological horror, surrealism
-
-**When middle schooler Madoka Kaname is offered one wish in exchange for becoming a magical girl to fight surreal witches, she learns that the seemingly bright fantasy hides a horrifying reality of despair and death.**
-
----
-
-### Flip Flappers
-Psychological, adventure, surrealism, sci-fi
-
-**When Papika crashes into Cocona’s quiet life, she drags her into a psychedelic, abstract dimension. Together, they must navigate a vibrant, surreal wonderland of subconsciousness and reality-bending physics.**
-
----
-
-### I'm In Love With The Villainess
-Comedy, fantasy
-
-**An office worker wakes up as Rae Taylor, the heroine of her favorite romance game. She ignores the male princes and pursues Claire François, the story's arrogant villainess.**
