@@ -17,6 +17,7 @@ The lesbian list has **16** entries!
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9.5/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
+| **Kase-san And Morning Glories**          | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
