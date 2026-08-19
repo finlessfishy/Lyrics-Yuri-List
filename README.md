@@ -1,6 +1,6 @@
 # Lyric's Yuri Manga and Anime List
 
-The lesbian list has **16** entries!
+The lesbian list has **17** entries!
 
 
 
@@ -9,7 +9,7 @@ The lesbian list has **16** entries!
 | :--- | :---: | :---: | :--- | :--- |
 | **7-Kakan Gentei Kanojo**                    | **9/10**   | Comedy        | **17** chapters | Manga |
 | **Adachi and Shimamura**                     | **9/10**   | Slice of life | **60** chapters, **12** episodes | Manga & Anime |
-| **Bloom Into You**                           | **8/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
+| **Bloom Into You**                           | **9/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy, Slice of life        | **66** chapters | Manga |
 | **Citrus**                                   | **8/10** | Slice of life, Angst      | **12** episodes, **71** chapters | Anime & Manga |
 | **Flip Flappers**                            | **9/10** | Comedy, Surrealism        | **13** episodes | Anime only |
