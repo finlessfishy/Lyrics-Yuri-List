@@ -1,4 +1,4 @@
-# Lyric's Yuri Manga and Anime List
+# Lyric's Yuri List
 
 The lesbian list has **21** entries!
 
