@@ -2,8 +2,7 @@
 
 The lesbian list has **24** entries!
 
-**7** manga, **8** anime, and **7** games
-
+**7** manga, **10** anime, and **7** games
 
 
 
