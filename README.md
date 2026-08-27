@@ -1,8 +1,8 @@
 # Lyric's Yuri Manga and Anime List
 
-The lesbian list has **19** entries!
+The lesbian list has **20** entries!
 
-**7** manga, **8** anime, and **2** games
+**7** manga, **8** anime, and **3** games
 
 
 
@@ -20,6 +20,7 @@ The lesbian list has **19** entries!
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9.5/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
+| **It gets so lonely here**                     | **10/10** | Yandere | **~3** hours | Game (visual novel) |
 | **Kase-san And Morning Glories**          | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
