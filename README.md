@@ -1,8 +1,8 @@
 # Lyric's Yuri List
 
-The lesbian list has **21** entries!
+The lesbian list has **22** entries!
 
-**7** manga, **8** anime, and **4** games
+**7** manga, **8** anime, and **5** games
 
 
 
@@ -20,13 +20,14 @@ The lesbian list has **21** entries!
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
 | **I Married My Best Friend to Shut My Parents Up**        | **7/10**   | Comedy | **5** chapters | Manga |
 | **I'm In Love With The Villainess**          | **9.5/10**   | Fantasy       | **45** chapters, **12** episodes | Manga & Anime |
-| **It gets so lonely here**                     | **10/10** | Yandere | **~3** hours | Game (visual novel) |
-| **Kase-san And Morning Glories**          | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
+| **It gets so lonely here**                   | **10/10** | Yandere | **~3** hours | Game (visual novel) |
+| **I Want to Wear Your Wool**                 | **10/10** | Fluff, fantasy | **~30** minutes | Game (visual novel) |
+| **Kase-san And Morning Glories**             | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
 | **Sakura Trick**                             | **6/10**   | Comedy, Fluff        | **76** chapters, **12** episodes | Manga & Anime |
 | **Sheep Princess In Wolf’s Clothing**        | **7.5/10** | Fantasy, Comedy       | **27** chapters | Manga |
 | **The Summer You Were There**                | **10/10**  | Doomed, Angst        | **32** chapters | Manga |
-| **This Winter of Ours**                     | **9/10** | Fantasy | **~4** hours | Game (visual novel) |
+| **This Winter of Ours**                      | **9/10** | Fantasy | **~4** hours | Game (visual novel) |
 | **Winter Makes Me Lonely But At Least I Have You** | **7/10** | Slice of life | **~15** minutes | Game (visual novel) |
