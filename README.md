@@ -1,6 +1,6 @@
 # Lyric's Yuri Manga and Anime List
 
-The lesbian list has **17** entries!
+The lesbian list has **19** entries!
 
 
 
@@ -12,6 +12,7 @@ The lesbian list has **17** entries!
 | **Bloom Into You**                           | **9/10**   | Slice of life | **115** chapters, **13** episodes, **1** OVA | Manga & Anime |
 | **Cheerful Amnesia**                         | **8.5/10** | Comedy, Slice of life        | **66** chapters | Manga |
 | **Citrus**                                   | **8/10** | Slice of life, Angst      | **12** episodes, **71** chapters | Anime & Manga |
+| **Dermimi's!**                               | **10/10** | Psychological horror| ~**30** minutes | Game (visual novel) |
 | **Flip Flappers**                            | **9/10** | Comedy, Surrealism        | **13** episodes | Anime only |
 | **The Demon Girl Next Door**                 | **9/10** | Comedy, Fantasy      | **24** episodes, **82** chapters | Anime & Manga |
 | **I Can't Say No To The Lonely Girl**        | **8/10**   | Slice of life | **32** chapters | Manga |
@@ -24,3 +25,4 @@ The lesbian list has **17** entries!
 | **Sakura Trick**                             | **6/10**   | Comedy, Fluff        | **76** chapters, **12** episodes | Manga & Anime |
 | **Sheep Princess In Wolf’s Clothing**        | **7.5/10** | Fantasy, Comedy       | **27** chapters | Manga |
 | **The Summer You Were There**                | **10/10**  | Doomed, Angst        | **32** chapters | Manga |
+| **This Winter of Ours**                     | **9/10** | Fantasy | ~**4** hours | Game (visual novel) |
