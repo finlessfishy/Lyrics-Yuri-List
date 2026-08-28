@@ -1,8 +1,8 @@
 # Lyric's Yuri List
 
-The lesbian list has **25** entries!
+The lesbian list has **26** entries!
 
-**7** manga, **10** anime, and **8** games
+**7** manga, **10** anime, and **9** games
 
 
 
@@ -29,6 +29,7 @@ The lesbian list has **25** entries!
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
 | **Sakura Trick**                             | **6/10**   | Comedy, Fluff        | **76** chapters, **12** episodes | Manga & Anime |
 | **Sheep Princess In Wolf’s Clothing**        | **7.5/10** | Fantasy, Comedy       | **27** chapters | Manga |
+| **Solstice Snow Globe**                      | **8/10** | Platformer | **~5** minutes | Game (platformer) |
 | **The Summer You Were There**                | **10/10**  | Doomed, Angst        | **32** chapters | Manga |
 | **Where's Juniper?**                         | **9/10** | Comedy, fantasy | **~40** minutes | Game (RPG) |
 | **This Winter of Ours**                      | **9/10** | Fantasy | **~4** hours | Game (visual novel) |
