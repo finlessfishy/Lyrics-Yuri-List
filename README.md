@@ -1,8 +1,8 @@
 # Lyric's Yuri List
 
-The lesbian list has **24** entries!
+The lesbian list has **25** entries!
 
-**7** manga, **10** anime, and **7** games
+**7** manga, **10** anime, and **8** games
 
 
 
@@ -22,6 +22,7 @@ The lesbian list has **24** entries!
 | **It gets so lonely here**                   | **10/10** | Yandere | **~3** hours | Game (visual novel) |
 | **I Want to Wear Your Wool**                 | **10/10** | Fluff, fantasy | **~30** minutes | Game (visual novel) |
 | **Kase-san And Morning Glories**             | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
+| **Lesbian Vampire Simulator**                | **9/10** | Platformer | **~1** hour | Game (platformer) |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **MAIDNIGHT**                                | **10/10** | Psychological horror| **~2** hours | Game (visual novel) |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
