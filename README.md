@@ -24,6 +24,7 @@ The lesbian list has **26** entries!
 | **Kase-san And Morning Glories**             | **9.5/10**   | Slice of life       | **58** minutes| Anime movie |
 | **Lesbian Vampire Simulator**                | **9/10** | Platformer | **~1** hour | Game (platformer) |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
+| **Lonely Wolf Treat**                        | **9/10** | Fantasy    | **~3** hours | Game (RPG) |
 | **MAIDNIGHT**                                | **10/10** | Psychological horror| **~2** hours | Game (visual novel) |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
