@@ -33,5 +33,5 @@ The lesbian list has **27** entries!
 | **Solstice Snow Globe**                      | **8/10** | Platformer | **~5** minutes | Game (platformer) |
 | **The Summer You Were There**                | **10/10**  | Doomed, Angst        | **32** chapters | Manga |
 | **Where's Juniper?**                         | **9/10** | Comedy, fantasy | **~40** minutes | Game (RPG) |
-| **This Winter of Ours**                      | **9/10** | Fantasy | **~4** hours | Game (visual novel) |
+| **This Winter of Ours**                      | **10/10** | Fantasy | **~4** hours | Game (visual novel) |
 | **Winter Makes Me Lonely But At Least I Have You** | **7/10** | Slice of life | **~15** minutes | Game (visual novel) |
