@@ -1,8 +1,8 @@
 # Lyric's Yuri List
 
-The lesbian list has **27** entries!
+The lesbian list has **28** entries!
 
-**7** manga, **10** anime, and **10** games
+**8** manga, **10** anime, and **10** games
 
 
 My Girlfriend is Devilishly Sweet
