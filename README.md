@@ -5,7 +5,7 @@ The lesbian list has **27** entries!
 **7** manga, **10** anime, and **10** games
 
 
-
+My Girlfriend is Devilishly Sweet
 | Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
 | **7-Kakan Gentei Kanojo**                    | **9/10**   | Comedy        | **17** chapters | Manga |
@@ -26,6 +26,7 @@ The lesbian list has **27** entries!
 | **Lonely Wolf Treat**                        | **10/10** | Fantasy    | **~6** hours | Game (RPG) |
 | **Love Bullet**                              | **9/10**   | Action, Fantasy        | **15** chapters | Manga |
 | **MAIDNIGHT**                                | **10/10** | Psychological horror| **~2** hours | Game (visual novel) |
+| **My Girlfriend is Devilishly Sweet**        | **9/10**   | This shit is SO gay        | **20** chapters | Manga |
 | **New Game!**                                | **5.5/10** | Slice of life | **151** chapters, **24** episodes, **1** OVA | Manga & Anime |
 | **Puella Magi Madoka Magica**                | **10/10**  | Surrealism, Doomed        | **12** chapters, **12** episodes, **3** movies | Manga & Anime |
 | **Sakura Trick**                             | **6/10**   | Comedy, Fluff        | **76** chapters, **12** episodes | Manga & Anime |
