@@ -5,7 +5,6 @@ The lesbian list has **28** entries!
 **8** manga, **10** anime, and **10** games
 
 
-My Girlfriend is Devilishly Sweet
 | Title | Rating | Genre | Length | Format |
 | :--- | :---: | :---: | :--- | :--- |
 | **7-Kakan Gentei Kanojo**                    | **9/10**   | Comedy        | **17** chapters | Manga |
